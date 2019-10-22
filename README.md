@@ -2,4 +2,4 @@
 目前最新可访问的地址：
 
 http://www.feixun.store    
-http://www.xunfei.site
+
